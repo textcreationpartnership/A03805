@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-AN EXPOſition of certayne words of S. Paule, to the Romaynes, entiteled by an old wryter Hugo.A TREA
+
 1. ¶ To the Chriſtian Reader.
 
 #####Body#####
